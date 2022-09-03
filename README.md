@@ -15,6 +15,8 @@ My collection of promo codes and affiliate links from the country of Georgia.
 		- [**Glovo**](#glovo)
 		- [**Bolt Food**](#bolt-food)
 		- [**Elvis Delivery**](#elvis-delivery)
+	- [Handyman service](#handyman-service)
+		- [**Profy**](#profy)
 
 
 ## Transport / Uber-like app
@@ -69,3 +71,14 @@ No promo codes available
 Georgian app. Adequate language support for English. Options greatly less than from Wolt or Glovo.
 
 No promo codes available
+
+
+## Handyman service 
+### **Profy**
+Professional handyman and cleaner on call
+
+Georgian app. Good language support for English.
+
+Get help around the home, from plumbing to house cleaning only by vetted service providers.
+
+Use Profy when you need help with cleaning or any handyman services. Use my promo code for the first order and get 10₾ discount. Download the app, choose a service and use my unique promo code **nvL8kME9m0**. [Learn more](https://profy.ge/promo?referral_code=nvL8kME9m0) 
