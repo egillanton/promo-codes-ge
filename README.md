@@ -2,17 +2,20 @@
 
 My collection of promo codes and affiliate links from the country of Georgia.
 
+---
 
 ## Transport / Uber-like app
 
-### Bolt
-> Hands down the best Uber-like app in Georgia. Great user interface and good language support for English.
->
-> Often have limited promos in cooperation with the banks, events and even the airport. 
-> 
-> I'm giving you 15% off your first 3 trips on Bolt app. (Max 3 GEL per trip)
-> 
-> To accept, use code **EGILLANTONHNP** to sign up! [Learn more](https://invite.bolt.eu/EGILLANTONHNP)
+### :money_with_wings: Bolt
+Hands down the best Uber-like app in Georgia. 
+
+Great user interface and good language support for English.
+
+Often have limited promos in cooperation with the banks, events and even the airport. 
+
+I'm giving you 15% off your first 3 trips on Bolt app. (Max 3 GEL per trip)
+
+To accept, use code **EGILLANTONHNP** to sign up! [Learn more](https://invite.bolt.eu/EGILLANTONHNP)
 
 
 ### Maxim
@@ -29,6 +32,7 @@ My collection of promo codes and affiliate links from the country of Georgia.
 >  
 > No promo codes available
 
+---
 
 ## Food delivery apps
 
