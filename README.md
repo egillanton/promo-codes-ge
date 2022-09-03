@@ -1,4 +1,4 @@
-# Promo Codes
+# Promo Codes in Georgia
 
 My collection of promo codes and affiliate links from the country of Georgia.
 
